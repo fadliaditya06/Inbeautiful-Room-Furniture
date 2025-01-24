@@ -22,6 +22,6 @@ Ahmad Hamim Thohari, S.S.T., M.T.
 - [3312301009] - Juan Jonathan Nainggolan
 - [3312301024] - Vania
   
-## Link Website Inbeautiful Furniture
+## Link Website Inbeautiful Room Furniture
 
 https://inbeautiful.infinityfreeapp.com/
